@@ -1,6 +1,9 @@
 # cookbook-Greece
+
 #Bucatini all'Amatriciana
-#INGREDIENTS
+
+##INGREDIENTS
+
 *2 Tbsp. extra-virgin olive oil
 *4 oz. thinly sliced guanciale, pancetta, or chopped unsmoked bacon
 *1/2 tsp. crushed red pepper flakes
