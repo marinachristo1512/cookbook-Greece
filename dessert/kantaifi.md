@@ -1,24 +1,24 @@
-#Kantaifi
+# Kantaifi
 
-##Ingredients:
+## Ingredients:
 - 450g kataifi dough (16 oz.)
 - 250g walnuts, roughly chopped (9 oz.)
 - 1 tsp ground cinammon
 - a pinch ground clove
 - 250g butter from cow’s milk (9 oz.)
 
-##For the syrup:
+## For the syrup:
 - 450g sugar (16 0z.)
 - 330g water (12 oz.)
 - peel of 1 lemon
 - 1 cinnamon stick
 
-##Instructions:
+## Instructions:
 1. To make this Kataifi recipe, start by preparing the syrup. Add all the ingredients for the syrup into a small pot and bring to the boil. As soon as the sugar has dissolved, the syrup is ready. Leave the syrup aside to cool completely.
 
 2. Prepare the filling for the Kataifi. In a blender add the walnuts, ground clove and cinnamon; pulse until the walnuts are roughly chopped (not powdered). Although the walnut filling is the most common, lots of kataifi recipes also add pistachios and almonds. So it’s up to you to decide.
 
-3.Melt the butter and with a cooking brush butter the bottom and sides of a baking pan. (approx. 26-28cm diameter)
+3. Melt the butter and with a cooking brush butter the bottom and sides of a baking pan. (approx. 26-28cm diameter)
 
 4. Unroll the Kataifi dough from the plastic sleeve. Work the kataifi dough with your hands, tearing apart the shreds and gently spreading the strands out a bit if they clump together, in order to get fluffy. Cover the Kataifi dough with a slightly damp towel.
 
