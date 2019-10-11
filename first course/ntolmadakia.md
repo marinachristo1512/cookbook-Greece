@@ -36,4 +36,4 @@ Cover the bottom of a sauce pan with vine leaves in order to keep dolmadakia fol
 
 Let them cool down in the sauce pan. Serve with yogurt as starters.
 
-![image of ntolmadakia](https://www.google.com/url?sa=i&source=images&cd=&ved=2ahUKEwjcoLKjpZTlAhWOL1AKHarZBuAQjRx6BAgBEAQ&url=https%3A%2F%2Fwww.tripadvisor.co.uk%2FLocationPhotoDirectLink-g186338-d3870327-i78891031-The_Life_Goddess_Store_street-London_England.html&psig=AOvVaw0BG7641JXkKHieIamsd5U3&ust=1570885970847527)
+![Image of ntolmadakia](https://www.google.com/url?sa=i&source=images&cd=&cad=rja&uact=8&ved=2ahUKEwjlkcOOppTlAhXFY1AKHQrfB9YQjRx6BAgBEAQ&url=%2Furl%3Fsa%3Di%26source%3Dimages%26cd%3D%26ved%3D%26url%3Dhttps%253A%252F%252Fwww.facebook.com%252Fdeligreekmalta%252Fphotos%252F-ntolmadakia-vine-leaves%252F643996832621068%252F%26psig%3DAOvVaw0BG7641JXkKHieIamsd5U3%26ust%3D1570885970847527&psig=AOvVaw0BG7641JXkKHieIamsd5U3&ust=1570885970847527)
