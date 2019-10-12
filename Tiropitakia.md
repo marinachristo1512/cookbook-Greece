@@ -3,19 +3,19 @@
 ## Ingredients 
 
 
-*170g feta cheese, crumbled (6 oz.)
+* 170g feta cheese, crumbled (6 oz.)
 
-*50g Gouda cheese, grated (2 oz.)
+* 50g Gouda cheese, grated (2 oz.)
 
-*50g Parmesan, or regato or Kefalograviera (2 oz.)
+* 50g Parmesan, or regato or Kefalograviera (2 oz.)
 
-*1 egg, beaten.
+* 1 egg, beaten.
 
-*a splash of milk.
+* a splash of milk.
 
-*fresh mint or dill, chopped (optional)
+* fresh mint or dill, chopped (optional)
 
-*olive oil or melted butter.
+* olive oil or melted butter.
 
 
 ![image tiropitacchia](https://www.ricettedalmondo.it/images/foto-ricette/31158-tiropitakia.jpg)
