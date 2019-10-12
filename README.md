@@ -36,3 +36,5 @@ Add drained pasta to sauce in skillet and toss vigorously with tongs to coat. Ad
 Recipe by **Sarah Tenaglia**, **Selma Brown Morrow**, Photos by **Jeff Lipsky**
 ...and many thanks to **@fpoggi**
 
+https://docs.google.com/spreadsheets/d/1zhVabpz5fLpT-HjlxiovMInNngNXXcU_tINeLkbrGoY/edit?usp=sharing
+
