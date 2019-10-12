@@ -37,3 +37,5 @@ Cover the bottom of a sauce pan with vine leaves in order to keep dolmadakia fol
 Let them cool down in the sauce pan. Serve with yogurt as starters.
 
 ![Image of ntolmadakia](https://blog.astirodysseuskos.com/wp-content/uploads/2019/02/ntolmadakia-680x380.jpg)
+
+_And for the technique look at_ https://www.youtube.com/watch?reload=9&v=5LREa8CbiUQ
